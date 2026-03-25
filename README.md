@@ -4,7 +4,7 @@
 
 <img width="600" height="2" alt="image" src="https://64.media.tumblr.com/3eff0d8861fd7f2d66869f31549d1877/f69e8894e1bcf9ee-1f/s2048x3072/aae778b63f07d2eaf2e464f56aad45ddfef93e76.pnj" />
 
-Gabi or Gabriela⠀ ⠀ -⠀ ⠀  F1 source⠀ ⠀ -⠀ ⠀  Proshipper / Darkshipper⠀ ⠀ ⠀ 
+Gabi or Gabriel(a)⠀ ⠀ -⠀ ⠀  F1 source⠀ ⠀ -⠀ ⠀  Proshipper / Darkshipper⠀ ⠀ ⠀ 
 ⠀  
 Sourcemates interact !⠀ ⠀ -⠀ ⠀ Kick Sauber <3⠀ ⠀ -⠀ ⠀  #GB5
 
